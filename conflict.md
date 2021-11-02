@@ -1,1 +1,1 @@
-tere tulemast
+tere tulemast päike
